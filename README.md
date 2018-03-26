@@ -33,3 +33,12 @@ Grupo 15 - Flavio
 
 Grupo 16 - Lucas Franca e Gilberto
 
+Grupo 17 - Douglas Nova e Edson
+
+Grupo 18 - Amanda e Analy
+
+Grupo 19 - Lucas Vinicius e Guilherme Souza
+
+Grupo 20 - Herick e Igor
+
+Grupo 21 - Mikael
